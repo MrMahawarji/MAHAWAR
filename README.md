@@ -1,2 +1,0 @@
-# MAHAWAR
-MAHAWAR
